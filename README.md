@@ -2,6 +2,7 @@
 
 - 👀 I’m interested in data analytics and data science.
 - :school:  Training programs
+
 2022
 CÔTÉ PROJETS [LYON, FRANCE]
 Formation de Français Langue Etrangère A2 
