@@ -6,7 +6,6 @@ Training programs
 2022 
 CÔTÉ PROJETS [LYON, FRANCE]
 Formation de Français Langue Etrangère A2 
-
 2022 
 BRAINNEST DATA ANALYSIS INDUSTRY TRAINING (REMOTE)
     
