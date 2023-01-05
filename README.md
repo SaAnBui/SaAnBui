@@ -1,7 +1,7 @@
 👋 Hi, I’m @SaAnBui
 
 👀 I’m interested in data analytics and data science. <br>
-:school:  ###Training programs
+:school:  ### Training programs
 
 2022 
 - CÔTÉ PROJETS [LYON, FRANCE]
