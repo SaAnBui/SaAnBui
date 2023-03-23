@@ -14,4 +14,8 @@ DATA ANALYSIS INDUSTRY TRAINING
 
 📫 Reach me at sabui8182@gmail.com 
 
+[LinkedIn](https://www.linkedin.com/in/saanbui)
+[Tableau Public](https://public.tableau.com/app/profile/sa.bui3397)
+
+
 
