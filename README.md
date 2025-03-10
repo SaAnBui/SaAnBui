@@ -7,7 +7,7 @@ Updated March 2025
 📫 Reach me at sabui8182@gmail.com  
 Or find me on  
 [LinkedIn](https://www.linkedin.com/in/saanbui)  
-[Tableau Public](https://public.tableau.com/app/profile/sa.bui3397)
+[Tableau Public](https://public.tableau.com/app/profile/sa.bui3397)<br>
 [Resume](https://docs.google.com/document/d/15V9ehW5sGpO_ZUTT6c7S0Tq9cvBvmRk9/edit?usp=sharing&ouid=108342310459873484202&rtpof=true&sd=truehttps://docs.google.com/document/d/15V9ehW5sGpO_ZUTT6c7S0Tq9cvBvmRk9/edit?usp=sharing&ouid=108342310459873484202&rtpof=true&sd=true)
 
 
